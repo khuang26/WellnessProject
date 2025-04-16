@@ -1,3 +1,6 @@
 - [https://anad.org/eating-disorder-statistic/](https://anad.org/eating-disorder-statistic/)
 - [https://www.nationaleatingdisorders.org/statistics/](https://www.nationaleatingdisorders.org/statistics/)
 - [https://www.npr.org/sections/health-shots/2024/01/06/1223243244/cities-with-soda-taxes-saw-sales-of-sugary-drinks-fall-as-prices-rose-study-find](https://www.npr.org/sections/health-shots/2024/01/06/1223243244/cities-with-soda-taxes-saw-sales-of-sugary-drinks-fall-as-prices-rose-study-find)
+- [https://www.nationaleatingdisorders.org/get-help/](https://www.nationaleatingdisorders.org/get-help/)
+- [https://www.webmd.com/mental-health/eating-disorders/binge-eating-disorder/mental-health-food-addiction](https://www.webmd.com/mental-health/eating-disorders/binge-eating-disorder/mental-health-food-addiction)
+- [https://www.foodaddicts.org/](https://www.foodaddicts.org/)
